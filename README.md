@@ -1,0 +1,1 @@
+# wefixtrades-assets
